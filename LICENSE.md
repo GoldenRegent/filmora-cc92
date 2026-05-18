@@ -1,4 +1,4 @@
-# 
+# Exclusivo Adobe Premiere Pro para PC ferramentas é o melhor Adobe Premiere Pro para PC ferramentas com instrumentos virtuais e chave de tela verde. Seguro, confiável e otimizado
 
 
 
